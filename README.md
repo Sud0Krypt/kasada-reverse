@@ -2,9 +2,9 @@
 
 For inquiries regarding the purchase of my complete Kasada Solution (X-kpsdk-ct, X-kpsdk-cd, X-kpsdk-v) please reach out via Telegram. Contact details are provided below.
 
-**Tele Contact:** [@go0go0fo0go0](https://t.me/go0go0fo0go0)
+**Tele Contact:** [@sudodaemonn](https://t.me/sudodaemonn)
 
-**Tele Channel:** [Join Here](https://t.me/+qP9G-_ii_XA1MGIx)-
+**Tele Channel:** [Join Here](https://t.me/+qP9G-_ii_XA1MGIx)
 
 ## Partial Kasada Reverse (python)
 
